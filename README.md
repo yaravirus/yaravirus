@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ixbdurgeshsharma@gmail.com**
 
-- 📄 Know about my experiences [https://app.luminpdf.com/viewer/68167ce78a90c53173cb0308](https://app.luminpdf.com/viewer/68167ce78a90c53173cb0308)
+- 📄 Know about my experiences [My Resume](https://app.luminpdf.com/viewer/681e050437602fdcfc67d239)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
